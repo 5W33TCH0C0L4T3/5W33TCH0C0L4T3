@@ -25,7 +25,7 @@
                              |、˜〵          
                              じしˍ,)ノ     
 
-                           [My Atabook](https://ch0c0l4t3.atabook.org/)
+                           [My Atabook](https://ch0c0l4t3.atabook.org)
                           
     Idk what else I supposed to say here,,, I love chocolates, if you still didn't get it.
   
