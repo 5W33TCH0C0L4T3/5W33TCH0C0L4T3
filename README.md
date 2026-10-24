@@ -25,14 +25,7 @@
                              |、˜〵          
                              じしˍ,)ノ     
 
-                           <details>
-  <summary>Click to reveal links</summary>
-  
-  Here are the resources:
-  - [Google](https://google.com)
-  - [GitHub](https://github.com)
-</details>
-                          
+                             
     Idk what else I supposed to say here,,, I love chocolates, if you still didn't get it.
   
 <img width="736" height="552" alt="I think I could survive off of just chocolate sometimes" src="https://github.com/user-attachments/assets/ddb5452e-736f-44c6-b336-9690e90e63c2" />
