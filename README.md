@@ -25,7 +25,13 @@
                              |、˜〵          
                              じしˍ,)ノ     
 
-                           [My Atabook](https://ch0c0l4t3.atabook.org)
+                           <details>
+  <summary>Click to reveal links</summary>
+  
+  Here are the resources:
+  - [Google](https://google.com)
+  - [GitHub](https://github.com)
+</details>
                           
     Idk what else I supposed to say here,,, I love chocolates, if you still didn't get it.
   
