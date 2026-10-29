@@ -5,8 +5,8 @@
                      
                      Call me Chocolate! Or Choco, for short.
                         
-    ⋆˚✿˖° I don't rly care what pronouns you'll call me, tho "She/Them" preferable. ⋆˚✿˖°
-                                 
+    ⋆˚✿˖° "Chocolate/Chocolates" pronouns. Please. You can use "They/Them" too. ⋆˚✿˖°
+                              
                                C+H encouraged >⩊< !
 
 
