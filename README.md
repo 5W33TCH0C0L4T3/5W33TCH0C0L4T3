@@ -8,6 +8,8 @@
     ⋆˚✿˖° "Chocolate/Chocolates" pronouns. Please. You can use "They/Them" too. ⋆˚✿˖°
                               
                                C+H encouraged >⩊< !
+                     
+                   Pony town's Shea Bianchi on @pt-everypony
 
 
 <img width="736" height="245" alt="ׅ       、    🦭♡     ﹙❀﹚   𓈒  、" src="https://github.com/user-attachments/assets/8daf0baa-ef3e-4672-9cdb-989ac3f6825c" />
