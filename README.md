@@ -1,20 +1,20 @@
 # 5W33TCH0C0L4T3.
 <img width="736" height="414" alt="951033646331337267" src="https://github.com/user-attachments/assets/3acb6e02-b682-4f7e-ae12-b05ff3c13d12" />
    
-       ✼••┈┈┈๑⋅⋯୨˚୧⋯⋅๑┈┈┈••✼         Hello!!         ✼••┈┈┈๑⋅⋯୨˚୧⋯⋅๑┈┈┈••✼
+   ✼••┈┈┈๑⋅⋯୨˚୧⋯⋅๑┈┈┈••✼         Hello!!         ✼••┈┈┈๑⋅⋯୨˚୧⋯⋅๑┈┈┈••✼
                      
-                         Call me Chocolate! Or Choco, 4 short.
+                   Call me Chocolate! Or Choco, 4 short.
                         
-    ⋆˚✿˖° "Chocolate/Chocolates" pronouns. Please. You can use "They/Them" too. ⋆˚✿˖°
+⋆˚✿˖° "Chocolate/Chocolates" pronouns. Please. You can use "They/Them" too. ⋆˚✿˖°
                               
-                                   C+H encouraged >⩊< !
+                             C+H encouraged >⩊< !
 
     I'm quite that type of person, which you can't talk properly, cuz I'm not so talkative. 
      I can not answer or just ignore, if I find the topic boring or kinda sensitive 4 me.
                  Don’t give me choices. It usually makes me uncomfortable.
                      
-                   Pony town's Shea Bianchi on @pt-everypony
-    Pony town's prettiest pony on @Ponytowns-rewards (Thx @sharpfrostcherv !)
+   Pony town's Shea Bianchi on @pt-everypony
+Pony town's prettiest pony on @Ponytowns-rewards (Thx @sharpfrostcherv !)
 
 
 <img width="736" height="245" alt="ׅ       、    🦭♡     ﹙❀﹚   𓈒  、" src="https://github.com/user-attachments/assets/8daf0baa-ef3e-4672-9cdb-989ac3f6825c" />
