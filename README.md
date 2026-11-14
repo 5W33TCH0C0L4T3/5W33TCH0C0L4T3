@@ -34,6 +34,11 @@
 
                              
     Idk what else I supposed to say here,,, I love chocolates, if you still didn't get it.
+
+    <img width="319" height="208" alt="broskii" src="https://github.com/user-attachments/assets/71a86342-6e08-47c7-befd-9b5ff8ca386c" />
+
+    <img width="170" height="159" alt="Travis chocopast" src="https://github.com/user-attachments/assets/69d2e318-f565-4436-a587-f0057c2b9063" />
+
   
 <img width="736" height="552" alt="I think I could survive off of just chocolate sometimes" src="https://github.com/user-attachments/assets/ddb5452e-736f-44c6-b336-9690e90e63c2" />
 
