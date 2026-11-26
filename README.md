@@ -7,12 +7,7 @@
                         
     ⋆˚✿˖° "Chocolate/Chocolates" pronouns. Please. You can use "She/Her" too. ⋆˚✿˖°
                               
-                                  C+H encouraged >⩊< !
-
-    I'm quite that type of person, which you can't talk properly, cuz I'm not so talkative. 
-     I can not answer or just ignore, if I find the topic boring or kinda sensitive 4 me.
-    Tho, if I'm comfortable with person whom talks to me or I have quite interest in talking 
-             to them myself, I can get quite talkative. Kinda messed up, I suppose.
+                           C+H encouraged & cudcomf >⩊< !
                      
                       Pony town's Shea Bianchi on @pt-everypony
      One of Pony town's prettiest pony on @Ponytowns-rewards (Thx @sharpfrostcherv !)
